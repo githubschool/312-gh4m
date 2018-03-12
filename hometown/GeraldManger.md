@@ -1,3 +1,0 @@
-# München
-
-Hauptstadt von Bayern.
