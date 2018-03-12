@@ -1,3 +1,3 @@
 # Munich
 
-Feriendorf in Alpennähe.
+Beschauliches Feriendorf in Alpennähe.
