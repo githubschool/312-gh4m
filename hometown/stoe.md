@@ -3,5 +3,5 @@
 In der Nähe vom Legoland in Günzburg.
 
 ## Essen
-- 🍝 Pizzaria Jessolo
+- 🍕 Pizzaria Jessolo
 - 🍖 Zur Eisenbahn
